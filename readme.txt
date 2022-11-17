@@ -6,5 +6,5 @@ Holy_Panda#5376 on Discord (or simply whatsapp) I'd suggest you to refrain from 
 
 also attach the blend file and textures...(will do)
 
-can all add their gmails?? we can try g-chat... k
+can all add their gmails?? we can try g-chat... (adwaitssingh@gmail.com)
  https://mail.google.com/chat
