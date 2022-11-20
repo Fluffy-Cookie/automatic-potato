@@ -7,6 +7,6 @@ I'd suggest you to refrain from further using the readme for chat purposes(i say
 
 also attach the blend file and textures...(i deleted the files)
 
-can all add their gmails?? we can try g-chat... (adwaitssingh@gmail.com) (chrislissanjohnson@gmail.com) (sau please add...)
+can all add their gmails?? we can try g-chat... (adwaitssingh@gmail.com) (chrislissanjohnson@gmail.com) (sau plz add...)
  https://mail.google.com/chat
  {https://discord.gg/YzntZekb} discord
