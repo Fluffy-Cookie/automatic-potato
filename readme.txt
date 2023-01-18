@@ -10,3 +10,5 @@ also attach the blend file and textures...(i deleted the files)
 can all add their gmails?? we can try g-chat... (adwaitssingh@gmail.com) (chrislissanjohnson@gmail.com) (sau plz add...)
  https://mail.google.com/chat
  {https://discord.gg/YzntZekb} discord
+ 
+ Is this place dead?
